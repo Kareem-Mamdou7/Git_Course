@@ -5,4 +5,4 @@
   How can i open this in default program directly.
 
 ## Kareem Gamed
-    I Hate Niggers
+  Im So Gamed and i love playing football and i go to school everyday in my school uniform.
