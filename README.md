@@ -3,3 +3,6 @@
  
  ## Notes
   How can i open this in default program directly.
+
+## Kareem Gamed
+    I Hate Niggers
